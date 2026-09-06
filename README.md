@@ -2,7 +2,7 @@
 
 ###
 
-<p align="left">​🚀 B.Tech CSE Student (2nd Year) | Aspiring Full Stack Developer | AI-ML |  </p>
+<p align="left">​🚀 B.Tech CSE Student (3rd Year) | Aspiring Full Stack Developer | AI-ML |  </p>
 
 ###
 
